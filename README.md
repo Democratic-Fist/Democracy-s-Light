@@ -1,1 +1,0 @@
-# Democracy-s-Light
